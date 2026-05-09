@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with rare bridger western Scripts, the #1 Script. Includes aimbot and auto-upgrade for unbeatable
 
 
 
